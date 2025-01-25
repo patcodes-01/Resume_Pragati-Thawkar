@@ -10,4 +10,4 @@ Beyond academics, I’m actively involved in community building as part of the I
 
 When I’m not coding or curating web content, I dive into my hobbies. I’m a speedcuber who loves the thrill of solving puzzles quickly, a fan of watching documentaries to gain new perspectives, and someone who enjoys engaging in conversations about anything under the sun—be it tech, culture, or random ideas. My thirst for knowledge and curiosity drive me to learn and grow beyond the classroom.
 
-Let's connect then—I’m always up for new opportunities, collaborations, or just an interesting conversation!
+Let's connect then—I’m always up for new opportunities and collaborations!
